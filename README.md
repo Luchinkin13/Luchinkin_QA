@@ -1,1 +1,2 @@
-# luchinkin_qa
+https://docs.google.com/spreadsheets/d/1b0xJEsXo_lr9GNHoafYM5AY_-ziQnODSDv5o3C-s1Dk/edit#gid=306401338
+https://docs.google.com/spreadsheets/d/1KAlO5ggIHeU6xSLJgPkJjd_la2KUd8lmFloRH8PeuxI/edit?usp=sharing
